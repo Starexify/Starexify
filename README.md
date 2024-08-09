@@ -1,3 +1,3 @@
 # ImVeryBad
 
-Random person you may never met or know.
+Random being you may never met or know.
